@@ -1,1 +1,2 @@
-# Geodesic-Dome
+# Geodesic Dome
+[Geodesic dome](https://www.glampingdomestore.com/) promote more efficient air circulation and keep temperatures even throughout the structure. This can make them two to four times more energy efficient than traditional homes. These homes also insulate more efficiently due to their unique shape. He named this design as geodesic dome because great circles are known as geodesics. Eventually, Fuller developed his design by using hexagons and pentagons instead of circles, to benefit from the strength and ease of use that a triangular shape brings. 
